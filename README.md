@@ -8,4 +8,4 @@ The tableau I need to master is what yet to come.
 
 One thing I have observed is I'm torn between job interviews and preparation I should play the long game not the short game so I need to build a road map for myself and once this is done I should be able to master my skills acording to it 
 
-Got an interview let's see where it leads 
+Got an interview let's see where it leads  and this interview is not the start or the end but let'S see where this goes 
